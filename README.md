@@ -8,7 +8,7 @@ Time open:
 Everyday from 10am to 10pm (Except sunday)
 
 Website Link:
-(https://chocolate-cakes-kijjl6g.gamma.site/)
+(https://chocolate-cakes-kijjl6g.gamma.site/)](https://gamexl-gaming-console-s77hf8r.gamma.site/)
 
 Location:
 Street - Jalan Bunga 13/50, Seksyen 13, 40100 Shah Alam
