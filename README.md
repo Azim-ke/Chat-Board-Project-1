@@ -5,7 +5,7 @@ Owner:
 Mr Megat Azim (Best Electronics Device)
 
 Time open:
-Everyday from 9am to 10pm (Except sunday)
+Everyday from 10am to 10pm (Except sunday)
 
 Website Link:
 (https://chocolate-cakes-kijjl6g.gamma.site/)
@@ -18,69 +18,45 @@ Zip code - 42600
 Phone Number:
 +60 19-439 5991
 
-Cake flavours:
-Chocolate (Available)
-Vanilla (Unavailable)
-Strawberry (Unavailable)
-Blueberry (Unavailable)
+Featured Products:
+Sony Playstation 5 (PS5): Experience the future of gaming with the powerful PS5 console. (From 1869RM to 2299RM)
+Microsoft Xbox Series X: Immerse yourself in lightning-fast, high-fidelity gaming with the Xbox Series X. (From 2000RM to 3100RM)
+Ninintendo Switch OLED: Enjoy vibrant gaming on the go with the Nintendo Switch OLED model. (From 1199RM to 1459RM)
 
-Icing flavours:
-Chocolate (Available)
-Vanilla (UnAvailable)
-Mint (Available)
-Strawberry (Available)
-Blueberry (Available)
+Exclusive Bundles:
+PS5 + God of War Ragnarok (From 2168RM to 2598RM)
+Xbox Series X + Halo Infinite (From 2249RM to 3349RM)
+Nintendo Switch OLED + Animal Crossing (From 1438RM to 1698RM)
+PS4 + Spider-Man (450RM to 900RM)
 
-Sizes & Pricing:
-Round cake 6 inch diameter - 30RM (40RM with icing)
-Round cake 8 inch diameter - 50RM (62RM with icing)
-Round cake 10 inch diameter - 80RM (95RM with icing)
-Round cake 12 inch diameter - 115RM (132RM with icing)
-Round cake 14 inch diameter - 155RM (175RM with icing)
-Round cake 16 inch diameter - 200RM (220RM with icing)
-Square cake 6x6 inch size - 40RM (52RM with icing)
-Square cake 8x8 inch size - 70RM (88RM with icing)
-Square cake 10x10 inch size - 110RM (140RM with icing)
-Square cake 12x12 inch size - 155RM (195RM with icing)
-Rectangle cake 6x8 inch size - 50RM (65RM with icing)
-Rectangle cake 8x12 inch size - 100RM (125RM with icing)
-Rectangle cake 12x16 inch size - 200RM (240RM with icing)
-Height is 4 inch for all cakes
+Genre:
+Platfromers, Beat 'em Ups, Hack and Slash, First-person shooters (FPS),Third-person shooters (TPS) and Fighting Games
 
-Ordering process:
-Specify cake tier number (accept 1 to 3)
-For each cake, specify which cake and icing flavour
-If cake tier is more than 1, lower cake must have bigger size than upper ones
-Cake tier cannot have different shapes
+Upcoming Releases:
+Final Fantasy XIV: Final Fantasy XIV, or FFXIV for short, is an online role-playing game (MMORPG) set in the fantasy world of Eorzea.
+Darkest Dungeon II: Darkest Dungeon II roguelike sequel to the challenging dungeon crawler, Darkest Dungeon.
+Black Myth: Wu Kong: Black Myth: Wu Kong is an upcoming action RPG based on the classic Chinese novel Journey to the West.
 
-Ingredients:
-All-purpose flour, granulated sugar, baking powder, baking soda, eggs, milk, vegetable oil, vanilla extract. (Made from scratch, all locally sourced ingredients)
+Repair and Maintenance Services:
+Experienced Technicians: Our team of expert technicians are dedicated to providing reliable and professional repair services.
+Fast Turnaround: Get your gaming console back in top shape quickly with our efficient repair process.
+Genuine Parts: We only use high-quality, genuine parts to ensure the longevity of your device.
+Extended Warranties: Enjoy peace of mind with our comprehensive extended warranty options.
 
-Programs:
-No cake workshop or decoration classes
-No loyalty program (will soon be implemented)
-No refunds and returns
+Loyalty Program:
+Exclusive Rewards: Earn points and redeem them for exciting rewards and discounts.
+VIP Treatment: Enjoy priority service, early access to new releases, and more.
+Level Up: Climb the tiers of our loyalty program and unlock greater perks.
+Special Offers: Be the first to know about exclusive deals and promotions.
 
-Promotions:
-[Chocolate Spree] Chocolate cake 20% off (End at 29th March)
+Customer Reviews:
+Exceptional Service: The team at KGS were incredibly helpful and knowledgeable. They helped me find the perfect console and accessories for my needs.
+Fast Repair Turnaround: I was amazed at how quickly they were able to repair my console. The technicians did a fantastic job and I had it back in no time.
+Loyalty Program Perks: The loyalty program is fantastic! I've been able to redeem points for some great rewards and the VIP treatment is a real perk.
 
-Tax:
-10% Government tax
+Contact Us:
+Visit Our Store: Come see us in person at our conveniently located gaming console store.
+Call Our Experts: Speak with our friendly and knowledgeable customer service team.
+Chat Online: Get in touch through our website for quick and efficient assistance.
 
-Icing:
-Icing is applied around each cake (except bottom part)
 
-Others:
-No vegan/free gluten options
-Order can be made via phone/chatbot (or coming to place)
-Deposit is 80% of the total price
-Do not accept any form of cash
-Tasting appointment can just come to the place directly
-Doesn't accept order issues, if any issue on orders, tell them to contact customer service via phone number.
-
-Other products:
-Candle (2RM for each candle)
-Lighter for candle (3RM)
-Plastic plates (2RM per 12 plates)
-Plastic utensils (spoon & fork) 1RM per tool
-Plastic knife to cut cake (2.5RM)
